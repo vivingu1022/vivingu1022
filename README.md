@@ -1,1 +1,1 @@
-full-time idiot
+I like rice 
